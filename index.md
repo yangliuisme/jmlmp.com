@@ -1,5 +1,4 @@
 ## This domain is for sale.
-# https://jmlmp.com
 
 ∵ www.jmlyp.com = 今麦郎饮品
 <br />
